@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Camiloo92
-- 👀 I’m interested in tecnology and the virtual spirituallity 
+- 👀 I am interested in technology, film, photography, and literature, and I love plants and mountains.
 - 🌱 I’m currently learning javaScript and Python
 - 💞️ I’m looking to collaborate on websites and management projects
 - 📫 How to reach me in instagram @camiloo92
